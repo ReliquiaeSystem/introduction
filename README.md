@@ -1,5 +1,10 @@
-# introduction
+# introduction BYI
 Hello!
+
+We're the Vintage Collective, He/They/Xe
+
+please read our carrd for more info!
+
 
 (☆_@) DNI; fit the usual DNI, under the age of 15, Trolls, etc
 
