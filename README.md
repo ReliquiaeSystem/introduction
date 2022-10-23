@@ -1,7 +1,7 @@
 # introduction BYI
 Hello!
 
-We're the Vintage Collective, He/They/Xe
+We're the Vintage Collective, He/They/Xe, 17+
 
 please read our carrd for more info!
 
@@ -12,4 +12,4 @@ please read our carrd for more info!
 
 Sourcemates are always welcome to int!
 
-Out current hyperfixations are Object shows (esp HFJONE !!)
+Our current hyperfixations are Object shows (esp HFJONE !!)
