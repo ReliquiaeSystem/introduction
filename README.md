@@ -1,7 +1,7 @@
 # introduction BYI
 Hello!
 
-We're the Vintage Collective, He/They/Xe, 17
+We're the Vintage Collective, He/They/It, 18
 
 please read our carrd for more info!
 
